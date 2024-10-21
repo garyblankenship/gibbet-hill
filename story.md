@@ -1,3 +1,10 @@
+Gibbet Hill
+===========
+
+BRAM STOKER
+
+December 17, 1890
+
 When I left the Royal Huts Inn, on the top
 of Hind Head, in order to visit the Devil’s Punchbowl
 and Gibbet Hill, immortalized by Turner
