@@ -60,11 +60,11 @@ spot where a century ago a poor seaman trudging
 on his way from Portsmouth was murdered.
 
 But not the stone only was of interest; for by it
-were three figures which would have arrested at-
-tention anywhere. They were only children, but of
+were three figures which would have arrested attention
+anywhere. They were only children, but of
 types that were not common. Two were young
-Indian girls of an age which by the slower de-
-velopment of English girlhood would be about
+Indian girls of an age which by the slower development
+of English girlhood would be about
 some thirteen or fourteen years; being,
 however, of Eastern birth, they were
 probably much younger. They stood
@@ -93,7 +93,7 @@ some remarks about the beauty of the scene. One
 of the girls said, tapping the stone with her hand
 as she spoke.
 
-“Can you tell us anything about this stone,  
+“Can you tell us anything about this stone,
 Sir? We are strangers.”
 
 “I am a stranger here myself, but I think we
@@ -196,10 +196,20 @@ some form or another. There was, however, no
 sense of duty omitted—no pressure of coming work,
 which in such cases destroys the charm of awakening.
 I knew that there was ample time before
+freedom, and enjoy the freshness and purity of
+the air in this wonderful spot.
 
-freedom, and enjoy the freshness and purity of the air in this wonderful spot.
-
-And so I did not stir, but lay on my back with my hands under my head looking up into the branches and watching the gleams of light struggle through the tracery of leaf and branch. I thought of many things, in that luxurious half-dreamy way which belongs to the leisure of an habitually busy man. Taking up a thread of thought and dropping it again—swaying between general and particular ideas—in all ways realizing that greatest of pleasures, intellectual laissez aller.
+And so I did not stir, but lay on my back with
+my hands under my head looking up into the
+branches and watching the gleams of light
+struggle through the tracery of leaf and branch.
+I thought of many things, in that luxurious half-dreamy
+way which belongs to the leisure of an
+habitually busy man. Taking up a thread of 
+thought and dropping it again—swaying between
+general and particular ideas—in all ways
+realizing that greatest of pleasures, intellectual
+_laissez aller_.
 
 There was in the air the same faint hum of varied sounds which had at the first lulled me to sleep; but somehow the volume was richer than before—more full and satisfying to the ear, and with a special significance, as if not only all nature was speaking but that there was someone voice amongst the myriad more potent than the rest. I listened with a growing interest, and the sound seemed to take a more definite place amongst nature's harmonies. It was not as if it grew in loudness, but merely as if the vibrations accumulated, coming in waves more quickly than they could die away.
 
