@@ -86,3 +86,107 @@ some remarks about the beauty of the scene. One
 of the girls said, tapping the stone with her hand
 as she spoke.
 
+“Can you tell us anything about this stone,  
+Sir? We are strangers.”
+
+“I am a stranger here myself, but I think we
+will find it here,” I answered, as I proceeded to
+read the inscription, which is on both sides of
+the stone. When I read the word 'murder,' they 
+all three looked at each other and then at me,
+and shuddered. Strange to say, they followed the 
+shudder with a smile, though
+they might be frightened, and I hastened
+to add—“But you need not let this
+disturb you. It all happened a hundred years 
+ago, when the country was very different from
+what it is now.” One of the girls said in a low 
+voice, whose tones were peculiarly penetrating,
+
+“I hope not—I trust not;” and the little boy
+looked up at me with a laugh and said,
+
+“I suppose if there were a murder now, some
+one would be stuck up on Gibbet Hill!”
+
+“Hallo! young man,” said I, “You know all about 
+it, I see. I am going up to the hilltop to see the
+Memorial Cross. Will you come and see where
+they put the murderer?”
+
+“With pleasure,” he said, with an air of almost
+supernatural gravity, lifting his cap in acknowledgment
+of my invitation. The girls bowed 
+too, and we all moved up the hill together. As
+we went, I noticed that the boy had one of his
+hands tightly clenched. “What have you got
+there?” I asked him.
+
+“These!” he said, opening his hand and
+showing me a crumpled mass of great earthworms,
+wriggling in their sudden freedom. “I
+love worms,” he went on. “See how they wriggle so,
+and you can pull them out long!” and he illustrated
+the latter fact.
+
+“Poor worms!” said I. “Why not let them
+go? They would much rather be on the ground.”
+
+“Shan't,” was his only reply, as he shove
+them into the folds of his tunic.
+
+There were a lot of people at the cross when
+we reached the top of Gibbet Hill, besides abundant
+evidence of recent visitors in the shape of
+ggshells and pieces of newspaper—for the cross
+is a favorite picnicking spot. Amongst the
+strangers, my fancy was chiefly taken by a lady
+and gentleman whom I dubbed “the honeymoon
+couple.” I soon became so absorbed by the
+lovely view that lay stretched before me—a
+wilderness of rising hilltops with green woods
+and rich valleys—that I quite forgot my young 
+companions. I went to the edge of the steep hill
+and sat down looking eastwards, and lost myself
+in the beauty of the scene.
+
+Presently, I remembered my young companions
+and looked around for them; but they had quite
+disappeared—there was not a sight of them anywhere around.
+
+My departure from London had been early, and
+the walk from Hazlemere in the blazing October
+sun a little fatiguing, so after a while, when I
+had been all around the summit of the Head and
+had, so to speak, boxed the scenic compass, I took
+my way to a deep shady grove of hazel and beech
+with tall pines rising over all—one of those dense
+copses that creep up from the valley, throwing
+jagged spikes of greenery up the slopes of the hill.
+Here there was the very perfection of
+autumn fullness. The undergrowth grew luxuriantly
+under the shelter of the clustering pines.
+The brown of the bark and the bluish bloom of
+the foliage of the pines, as one gazed into the
+half-dim aisles between them—the sweet aromatic
+odor which they exhaled—the sleepy
+silence, accentuated only by the hum of nature's
+myriad vitalities—the soft, rich grass, whose
+summer greenery stood untouched as yet in this
+sheltered dell—all invited repose. With a
+blissful feeling of content, I stretched myself on
+the grass and soon lost my thoughts and my
+consciousness in the interlaced branches above me.
+
+How long I slept, I know not; but it must have
+been a good while, for I felt thoroughly refreshed
+as to brain, and with that half-aching sense of
+cramped muscles which comes after a long period
+of unchanged attitude; and there was over me
+that mysterious sense of elapsed time which tells
+philosophers that our thought is continuous in
+some form or another. There was, however, no
+sense of duty omitted—no pressure of coming work,
+which in such cases destroys the charm of awakening.
+I knew that there was ample time before
+
